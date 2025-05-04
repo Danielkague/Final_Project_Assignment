@@ -1,0 +1,1 @@
+https://mindfullinsights.netlify.app/
